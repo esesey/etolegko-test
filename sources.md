@@ -1,0 +1,4 @@
+- https://i.playground.ru/p/x_EZzuyxEBUxhD-6MfVquQ.jpeg
+- https://thumb.wikimedia.org/wikipedia/commons/thumb/4/46/Pointe_Saint_Mathieu_-_Phare.jpg/1920px-Pointe_Saint_Mathieu_-_Phare.jpg
+- https://static.vecteezy.com/system/resources/previews/046/419/059/non_2x/printing-cmyk-marks-offset-print-calibration-marks-gradient-color-tone-color-bars-and-registration-plates-color-printing-standard-illustration-set-vector.jpg
+- https://static.vecteezy.com/system/resources/previews/017/351/034/non_2x/pixel-noise-vhs-glitch-texture-tv-screen-introduction-and-the-end-of-the-tv-programming-vector.jpg
